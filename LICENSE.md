@@ -1,4 +1,4 @@
-# 
+# Get the ultimate MindManager for Windows helper with exclusive MindManager for Windows Helper | offline-access + brainstorming-tools. Featuring offline-access and
 
 
 
